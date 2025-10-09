@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @daddimy
-- 👀 I’m interested in ... crypto !!!
+- 👀 I’m interested in ... crypto !!!!
 - 🌱 I’m currently learning ... IT!
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
